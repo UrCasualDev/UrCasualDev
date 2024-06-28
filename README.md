@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @UrCasualDev
+- 👀 I’m interested in developing games
+- 🌱 I’m currently in 7th grade
+- 📫 How to reach me BoxedByZyshon@gmail.com
+- 😄 Pronouns: Whatever the heck a boy uses
+- ⚡ Fun fact: I play Fortnite and make youtube videos in my spare time @JusAGamer5373 Or my Youtube channel link is directly right here: https://www.youtube.com/channel/UCcy-JD4hZXGWBzGjXiORP-w
